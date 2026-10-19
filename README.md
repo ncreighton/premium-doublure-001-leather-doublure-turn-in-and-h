@@ -1,0 +1,2 @@
+# premium-doublure-001-leather-doublure-turn-in-and-h
+Stop guessing your doublure dimensions and hinge overlaps. The Leather Doublure Turn-In and Hinge Log is the first Notion template purpose-built for bookbinders who demand exact turn-in measurements and hinge configurations — no more lost notes or inconsistent results.  This template solves the chaos of tracking multiple doublure projects by centra
